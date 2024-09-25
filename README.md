@@ -4,4 +4,4 @@
 - 18 anos
 - Santa Maria - Rio Grande do Sul
 - Ciência da Computação - UFN
-[@dsscher](https://instagram.com/dsscher)
+- [@dsscher](https://instagram.com/dsscher)
